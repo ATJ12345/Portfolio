@@ -7,7 +7,7 @@
       STUDENT     : 223514....................
 
 # CONTACT
- ![th](https://github.com/ATJ12345/Portfolio/assets/146546639/9a6dd18f-8c99-4fc0-a56d-98c82892330b)   23278030997 / +861
+ ![th](https://github.com/ATJ12345/Portfolio/assets/146546639/9a6dd18f-8c99-4fc0-a56d-98c82892330b)   23278030997 / +8615924369562
  
 ![th (2)](https://github.com/ATJ12345/Portfolio/assets/146546639/649e7597-e1fb-40fd-92bf-c8cd86000bd7) ahmedtejanjalloh2017@gmal.com 
 
@@ -18,6 +18,9 @@
 ![th (5)](https://github.com/ATJ12345/Portfolio/assets/146546639/474f8133-f55b-4e75-a10a-442c985b9f23)  23278030997
 
 ![OIP-C (1)](https://github.com/ATJ12345/Portfolio/assets/146546639/4f91bf90-a936-4a5a-a1e7-5617c5f4875f) 23278030997
+
+![download (1)](https://github.com/ATJ12345/Portfolio/assets/146546639/cf4eeda8-3244-43b0-b4df-0c705254ee46) ahmedtejanjalloh/instagram/profile
+
 
 # QUALIFICATIONS 
       BSC HONS IN BUSINESS AND INFORMATION TECHNOLOGY
